@@ -1,0 +1,1 @@
+this is me trying to get smth from my stupid life
